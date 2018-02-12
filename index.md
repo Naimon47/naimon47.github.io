@@ -18,7 +18,7 @@ In the own words of the 8chan anon that figured it out:
 >ok the petition site has been down for some time now. it had this image up  
 >WE the PEOPLE  
 >said it would be up end of January  
-[![ALT Text](https://media.8ch.net/file_store/thumb/b29b00e7bdee7ffab52b5efa007d8939ab7afaa4f43437172857424a721cacf0.png)](https://media.8ch.net/file_store/b29b00e7bdee7ffab52b5efa007d8939ab7afaa4f43437172857424a721cacf0.png)  
+[![ALT Text](images/thumb/1.jpg)](images/1.png)  
   
 >so i thought  
 >Q posted WE, THE PEOPLE  
@@ -27,12 +27,12 @@ In the own words of the 8chan anon that figured it out:
 >pause in petition site  
 >1+1=2  
 >no coincidence  
-[![ALT Text](https://media.8ch.net/file_store/thumb/d2d1931a78fac0b808a5cb3d506afc860c31983c84cbe8134d23dcb84223a0e5.png)](https://media.8ch.net/file_store/d2d1931a78fac0b808a5cb3d506afc860c31983c84cbe8134d23dcb84223a0e5.png)  
+[![ALT Text](images/thumb/2.jpg)](images/2.png)  
   
 >so i found out that the site had been out since  
 >12-19-2017  
 >and here's the Q post  
-[![ALT Text](https://media.8ch.net/file_store/thumb/a65e178302baba30307d50e4e821fa31ab60ea48295501ba615847356ab4bf42.png)](https://media.8ch.net/file_store/a65e178302baba30307d50e4e821fa31ab60ea48295501ba615847356ab4bf42.png)  
+[![ALT Text](images/thumb/3.jpg)](images/3.png)  
   
 >Q posted on jan 31 about an hour before site came up  
   
@@ -47,21 +47,21 @@ In the own words of the 8chan anon that figured it out:
   
 >So i assembled this to get people to make petitions  
 >no takers  
-[![ALT Text](https://media.8ch.net/file_store/thumb/fe3976544335233345ced49116b64e56b8ec9b01e5b5aef525ecf772777d1de3.png)](https://media.8ch.net/file_store/fe3976544335233345ced49116b64e56b8ec9b01e5b5aef525ecf772777d1de3.png)  
+[![ALT Text](images/thumb/4.jpg)](images/4.png)  
   
-[![ALT Text](https://media.8ch.net/file_store/thumb/662f632d2d8aa517840100264784c6cbb2772a00ff3b7b4eaeaf232cd53dea31.png)](https://media.8ch.net/file_store/662f632d2d8aa517840100264784c6cbb2772a00ff3b7b4eaeaf232cd53dea31.png)  
+[![ALT Text](images/thumb/5.jpg)](images/5.png)  
   
-[![ALT Text](https://media.8ch.net/file_store/thumb/104c248c2baef7c87301318ca24e80d07035183228bddd68ef9f9496ff7e47db.png)](https://media.8ch.net/file_store/104c248c2baef7c87301318ca24e80d07035183228bddd68ef9f9496ff7e47db.png)  
+[![ALT Text](images/thumb/6.jpg)](images/6.png)  
   
 >problem is..  
 >need Americans to make and sign petition  
 >so i said fuck it  
-[![ALT Text](https://media.8ch.net/file_store/thumb/946950d2c8c71b48095027dc5d3cd2068f23544b5d43924c3aa90d475a37e96c.png)](https://media.8ch.net/file_store/946950d2c8c71b48095027dc5d3cd2068f23544b5d43924c3aa90d475a37e96c.png)  
+[![ALT Text](images/thumb/7.jpg)](images/7.png)  
   
 >another anon posted these. they are excellent  
 >he connects the dots well with the Nunez letter.  
-[![ALT Text](https://media.8ch.net/file_store/thumb/30992421f47e1a2d8c5e5858daa158e70ae91dac7f6dfaf947b413cf9a787598.png)](https://media.8ch.net/file_store/30992421f47e1a2d8c5e5858daa158e70ae91dac7f6dfaf947b413cf9a787598.png)  
-[![ALT Text](https://media.8ch.net/file_store/thumb/9b16c649e9e96e5fa6c8d61589744dba54fded3b518e0d3bc930dafcfb291d6d.png)](https://media.8ch.net/file_store/9b16c649e9e96e5fa6c8d61589744dba54fded3b518e0d3bc930dafcfb291d6d.png)  
+[![ALT Text](images/thumb/8.jpg)](images/8.png)  
+[![ALT Text](images/thumb/9.jpg)](images/9.png)  
   
 >We need to organize a petition campaign  
 >create appropriate petitions  
